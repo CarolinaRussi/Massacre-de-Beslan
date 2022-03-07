@@ -1,4 +1,8 @@
 # Massacre-de-Beslan
+Canal Colecionador de Ossos
+
+# Fontes e Referências da matéria:
+
 https://www.noticiasaominuto.com/mundo/857150/massacre-de-beslan-os-anos-foram-a-dor-ficou-e-as-respostas-nao-vieram
 
 https://pt.euronews.com/2014/09/01/relembrar-o-massacre-na-escola-de-beslan-dez-anos-depois
